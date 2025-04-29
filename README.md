@@ -17,3 +17,5 @@ Quick Matches: Perfect for short play sessions—no waiting, just playing.
 Immersive Sound Effects: Basic stadium-style audio keeps the energy high throughout every match.
 
 Whether you're looking for a quick game or just want to collect some gold, Head League Pro: Africa Edition delivers exciting, no-fuss soccer fun with a bit of extra flair.
+
+![Head League Pro: Africa Edition](https://f.top4top.io/p_3406idef11.jpg)
