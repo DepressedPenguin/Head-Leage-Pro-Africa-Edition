@@ -22,3 +22,5 @@ Whether you're looking for a quick game or just want to collect some gold, Head 
 
 ![Head League Pro: Africa Edition](https://d.top4top.io/p_3406vx4zt1.jpg)
 
+![Head League Pro: Africa Edition](https://h.top4top.io/p_3406ygz4s1.jpg)
+
